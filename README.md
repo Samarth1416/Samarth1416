@@ -14,7 +14,7 @@ Integrating AI models into penetration testing tools and improving automated thr
 - 💬 Ask me about:
 Collaboration, Tech Support, Cybersecurity, Android Development, and Ethical Hacking.
 - 📫 How to reach me:
-📧 s.g.ghole1432gmail.com
+📧 s.g.ghole143@gmail.com
 - 😄 Pronouns: SDG
 - ⚡ Fun fact:
 I Love Tech — and Tech Loves Me 💻❤️
